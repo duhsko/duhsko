@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @duhsko
+- 👋 Hi, I’m dusko
 - 👀 I’m interested in like alota things
-- 🌱 I’m currently learning absoslutely nothing
+- 🌱 I’m currently learning absolutely nothing
 - 💞️ I’m looking to collaborate on becoming a better person
 - 📫 How to reach me, dont.
 - ⚡ Fun fact: lazy
